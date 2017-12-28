@@ -128,5 +128,11 @@ CRC32: FF2BC038
 
 ---
 
-共计114个. --(2017年12月28日)
+共计114个. (2017年12月28日)
+
+---
+
+打包下载    
+[https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/emoji_of_jrtt_20171228/所有图片打包.zip](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/emoji_of_jrtt_20171228/%E6%89%80%E6%9C%89%E5%9B%BE%E7%89%87%E6%89%93%E5%8C%85.zip)
+
 
