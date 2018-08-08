@@ -1,7 +1,7 @@
-互联网时代造星攻略 -via @精分君
 
-造星真是太简单了啊。。。
+一则招聘  --via @精分君
 
-![0d0b3c4180584cea8eca8675755536cc.png](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/10009/0d0b3c4180584cea8eca8675755536cc.png)
+![1a8882c0e993446cb34101ba68be414a.png](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/10010/1a8882c0e993446cb34101ba68be414a.png)
 
-![30418983ef284013a685b9efcfea1c9a.png](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/10009/30418983ef284013a685b9efcfea1c9a.png)
+![2babf8de419247f388afd480572085d1.png](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/10010/2babf8de419247f388afd480572085d1.png)
+
