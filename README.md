@@ -501,6 +501,54 @@
 
 [二次元入侵地球 -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40027/)
 
+[我有一个学弟，他有一些很特别的赚钱技巧... -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40028/)
+
+[这是我见过的最无聊的一群程序员了。 -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40029/)
+
+[一个非常励志的创业小故事... -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40030/)
+
+[给大家介绍几个我最近见到的奇葩创业项目.. -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40031/)
+
+[如何对付那些经常找你帮忙转发微博的朋友 -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40032/)
+
+[从#中秋节福利#来看不同公司的区别. -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40033/)
+
+[千万不要把网上的段子讲给爸妈听… -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40034/)
+
+[我再也不想体验土豪的生活了... -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40035/)
+
+[昨天用了一个软件，然后觉得整个人都不好了 -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40036/)
+
+[如果搞互联网的人去其他行业工作. -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40037/)
+
+[一个人的口味决定着他的性格 -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40038/)
+
+[如果我是编剧，这些电视的结局将会是这样的.. -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40039/)
+
+[教大家一个借钱的新方法. -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40040/)
+
+[没事儿就不要教别人求婚了.. -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40041/)
+
+[给大家看几个求婚失败的案例.. -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40042/)
+
+[最近花了几天时间研究@南派三叔 之前发的一条微博，交作业了.. -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40043/)
+
+[为什么会有人开发这么无聊的软件. -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40044/)
+
+[战争时候的微信、易信什么的，一定是这样的. -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40045/)
+
+[我有一个很奇葩的程序员师兄… -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40046/)
+
+[给大家讲个七夕的故事 - @使徒子 ， 天才小熊猫 转](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40047/)
+
+[我用过的最坑爹的一个软件，没有之一.. -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40048/)
+
+[如果杜蕾斯也做手机安全软件的话，一定是这样的 -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40049/)
+
+[教你如何让女生开心. -via@天才小熊猫](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40050/)
+
+[有一种闲，叫闲的蛋疼](https://github.com/wxlzmt/cdn1/tree/master/ext/qw/groups/40051/)
+
 
 
 
