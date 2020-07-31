@@ -1,6 +1,6 @@
 写了一个比较猎奇的穿越小说，不定期更新... -via@天才小熊猫
 
-![5b3b371a863640c38d258b2ec04908ec.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/20033/5b3b371a863640c38d258b2ec04908ec.jpg)
+![5b3b371a863640c38d258b2ec04908ec.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/20033/5b3b371a863640c38d258b2ec04908ec.jpg)
 
 下集
 

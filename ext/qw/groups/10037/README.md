@@ -4,4 +4,4 @@
 
 这突如其来的幸福感。。。
 
-![0932931ec14f4dd88ae888d2f70a3e9a.png](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/10037/0932931ec14f4dd88ae888d2f70a3e9a.png)
+![0932931ec14f4dd88ae888d2f70a3e9a.png](https://wxlzmt.github.io/cdn1/ext/qw/groups/10037/0932931ec14f4dd88ae888d2f70a3e9a.png)

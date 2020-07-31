@@ -2,7 +2,7 @@
 
 不停求朋友圈点赞投票真的好烦啊。。。
 
-![b5d97d234cc547bf8a64beb8989f5fa1.png](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/10011/b5d97d234cc547bf8a64beb8989f5fa1.png)
+![b5d97d234cc547bf8a64beb8989f5fa1.png](https://wxlzmt.github.io/cdn1/ext/qw/groups/10011/b5d97d234cc547bf8a64beb8989f5fa1.png)
 
-![a76bb542752b4ab4b02aee7f2f4acfd3.png](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/10011/a76bb542752b4ab4b02aee7f2f4acfd3.png)
+![a76bb542752b4ab4b02aee7f2f4acfd3.png](https://wxlzmt.github.io/cdn1/ext/qw/groups/10011/a76bb542752b4ab4b02aee7f2f4acfd3.png)
 

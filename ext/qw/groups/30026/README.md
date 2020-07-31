@@ -3,5 +3,5 @@
 
 灵验的祝福语
 
-![6c386ada3cec485aa5b8b39a54859dba.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30026/6c386ada3cec485aa5b8b39a54859dba.jpg)
+![6c386ada3cec485aa5b8b39a54859dba.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30026/6c386ada3cec485aa5b8b39a54859dba.jpg)
 

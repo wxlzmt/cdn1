@@ -2,6 +2,6 @@
 
 生活就应该团圆
 
-![7e3537f01b244caaa07fabcad72a6406.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30027/7e3537f01b244caaa07fabcad72a6406.jpg)
+![7e3537f01b244caaa07fabcad72a6406.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30027/7e3537f01b244caaa07fabcad72a6406.jpg)
 
-![66e0a92accb14d529d8ce16d7fe75010.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30027/66e0a92accb14d529d8ce16d7fe75010.jpg)
+![66e0a92accb14d529d8ce16d7fe75010.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30027/66e0a92accb14d529d8ce16d7fe75010.jpg)

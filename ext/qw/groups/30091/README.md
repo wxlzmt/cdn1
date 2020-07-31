@@ -2,6 +2,6 @@
 
 55开黑指南...
 
-![824880f165f2479682db19cca6801d47.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30091/824880f165f2479682db19cca6801d47.jpg)
+![824880f165f2479682db19cca6801d47.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30091/824880f165f2479682db19cca6801d47.jpg)
 
-![8c7413ffaa494f33b4a03fab0017e65e.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30091/8c7413ffaa494f33b4a03fab0017e65e.jpg)
+![8c7413ffaa494f33b4a03fab0017e65e.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30091/8c7413ffaa494f33b4a03fab0017e65e.jpg)

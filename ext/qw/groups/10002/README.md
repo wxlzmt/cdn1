@@ -2,6 +2,6 @@
 
 一个多重身份的人。。。
 
-![9b9cbed144ae4a68afa2243b778305ba.png](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/10002/9b9cbed144ae4a68afa2243b778305ba.png)
+![9b9cbed144ae4a68afa2243b778305ba.png](https://wxlzmt.github.io/cdn1/ext/qw/groups/10002/9b9cbed144ae4a68afa2243b778305ba.png)
 
-![991bf1620b9241fca4a1a65bfc3fd974.png](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/10002/991bf1620b9241fca4a1a65bfc3fd974.png)
+![991bf1620b9241fca4a1a65bfc3fd974.png](https://wxlzmt.github.io/cdn1/ext/qw/groups/10002/991bf1620b9241fca4a1a65bfc3fd974.png)

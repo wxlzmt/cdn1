@@ -2,6 +2,6 @@
 
 一种防止聊天冷场的方法。。。
 
-![aa399e18aea340ebb2b2b29cff8a6e51.png](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/10007/aa399e18aea340ebb2b2b29cff8a6e51.png)
+![aa399e18aea340ebb2b2b29cff8a6e51.png](https://wxlzmt.github.io/cdn1/ext/qw/groups/10007/aa399e18aea340ebb2b2b29cff8a6e51.png)
 
-![8f4244572b804de5af56364f67a78bdd.png](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/10007/8f4244572b804de5af56364f67a78bdd.png)
+![8f4244572b804de5af56364f67a78bdd.png](https://wxlzmt.github.io/cdn1/ext/qw/groups/10007/8f4244572b804de5af56364f67a78bdd.png)

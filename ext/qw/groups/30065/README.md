@@ -3,5 +3,5 @@
 
 一个适用于情侣玩儿的小游戏...
 
-![be6b6d034472417dbae80efffaa76a41.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30065/be6b6d034472417dbae80efffaa76a41.jpg)
+![be6b6d034472417dbae80efffaa76a41.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30065/be6b6d034472417dbae80efffaa76a41.jpg)
 

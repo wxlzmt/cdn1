@@ -4,5 +4,5 @@
 
 互联网变形计第二集——生存... -via@天才小熊猫
 
-![29c8fd470d884c58a78ba0ab67c8c8d2.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/20034/29c8fd470d884c58a78ba0ab67c8c8d2.jpg)
+![29c8fd470d884c58a78ba0ab67c8c8d2.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/20034/29c8fd470d884c58a78ba0ab67c8c8d2.jpg)
 

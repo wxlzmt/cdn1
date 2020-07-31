@@ -2,4 +2,4 @@
 
 红包守卫战...
 
-![26474926f52942f7a58476490317d6b9.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30063/26474926f52942f7a58476490317d6b9.jpg)
+![26474926f52942f7a58476490317d6b9.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30063/26474926f52942f7a58476490317d6b9.jpg)

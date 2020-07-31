@@ -2,5 +2,5 @@
 
 人生的选择
 
-![99ae923e81b449bb9d3a01d09867c387.png](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/10019/99ae923e81b449bb9d3a01d09867c387.png)
+![99ae923e81b449bb9d3a01d09867c387.png](https://wxlzmt.github.io/cdn1/ext/qw/groups/10019/99ae923e81b449bb9d3a01d09867c387.png)
 

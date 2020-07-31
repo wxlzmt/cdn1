@@ -2,6 +2,6 @@
 
 假如秀恩爱成为一种罪名...
 
-![01fc4340ecc54f20990edeeb17f4e072.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30043/01fc4340ecc54f20990edeeb17f4e072.jpg)
+![01fc4340ecc54f20990edeeb17f4e072.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30043/01fc4340ecc54f20990edeeb17f4e072.jpg)
 
-![813f731e56cb42c29d09ad894b568233.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30043/813f731e56cb42c29d09ad894b568233.jpg)
+![813f731e56cb42c29d09ad894b568233.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30043/813f731e56cb42c29d09ad894b568233.jpg)

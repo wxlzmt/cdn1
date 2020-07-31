@@ -2,6 +2,6 @@
 
 舆论的力量。。。
 
-![5e12707425c94db1b3f6c8841cf55564.png](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/10023/5e12707425c94db1b3f6c8841cf55564.png)
+![5e12707425c94db1b3f6c8841cf55564.png](https://wxlzmt.github.io/cdn1/ext/qw/groups/10023/5e12707425c94db1b3f6c8841cf55564.png)
 
-![87875e6652aa4fab874383aafb1c681b.png](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/10023/87875e6652aa4fab874383aafb1c681b.png)
+![87875e6652aa4fab874383aafb1c681b.png](https://wxlzmt.github.io/cdn1/ext/qw/groups/10023/87875e6652aa4fab874383aafb1c681b.png)

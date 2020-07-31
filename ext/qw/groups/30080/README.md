@@ -2,6 +2,6 @@
 
 一次成功的愚人节整蛊...
 
-![da645b4e57df4c98bba79bebdf1bc42d.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30080/da645b4e57df4c98bba79bebdf1bc42d.jpg)
+![da645b4e57df4c98bba79bebdf1bc42d.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30080/da645b4e57df4c98bba79bebdf1bc42d.jpg)
 
-![4e84d979b74041a5a1c2828a2b4edc93.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30080/4e84d979b74041a5a1c2828a2b4edc93.jpg)
+![4e84d979b74041a5a1c2828a2b4edc93.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30080/4e84d979b74041a5a1c2828a2b4edc93.jpg)

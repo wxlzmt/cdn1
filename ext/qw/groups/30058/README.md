@@ -2,6 +2,6 @@
 
 新的打分系统...
 
-![f4ccdef521d74cbd9ed6b9bb034d66e0.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30058/f4ccdef521d74cbd9ed6b9bb034d66e0.jpg)
+![f4ccdef521d74cbd9ed6b9bb034d66e0.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30058/f4ccdef521d74cbd9ed6b9bb034d66e0.jpg)
 
-![a615fc137d1c44c2b4d11b8c6c31570a.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30058/a615fc137d1c44c2b4d11b8c6c31570a.jpg)
+![a615fc137d1c44c2b4d11b8c6c31570a.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30058/a615fc137d1c44c2b4d11b8c6c31570a.jpg)

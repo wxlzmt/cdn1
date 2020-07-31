@@ -3,5 +3,5 @@
 数学让人致富
 
 
-![8b36b607b8f840ecbea66ec2fa22bc74.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30030/8b36b607b8f840ecbea66ec2fa22bc74.jpg)
+![8b36b607b8f840ecbea66ec2fa22bc74.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30030/8b36b607b8f840ecbea66ec2fa22bc74.jpg)
 

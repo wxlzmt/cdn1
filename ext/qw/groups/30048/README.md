@@ -2,6 +2,6 @@
 
 音乐的力量...
 
-![dedd309438904c0aa37e016e2f02879c.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30048/dedd309438904c0aa37e016e2f02879c.jpg)
+![dedd309438904c0aa37e016e2f02879c.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30048/dedd309438904c0aa37e016e2f02879c.jpg)
 
-![960ecaad157b46d6a5ac90d34f666167.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30048/960ecaad157b46d6a5ac90d34f666167.jpg)
+![960ecaad157b46d6a5ac90d34f666167.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30048/960ecaad157b46d6a5ac90d34f666167.jpg)

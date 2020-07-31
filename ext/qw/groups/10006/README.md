@@ -2,5 +2,5 @@
 
 一个躲避发红包的方法。。。
 
-![1a6d1c3381654334a81008fd896f0c97.png](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/10006/1a6d1c3381654334a81008fd896f0c97.png)
+![1a6d1c3381654334a81008fd896f0c97.png](https://wxlzmt.github.io/cdn1/ext/qw/groups/10006/1a6d1c3381654334a81008fd896f0c97.png)
 

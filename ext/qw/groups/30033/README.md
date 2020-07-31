@@ -3,5 +3,5 @@
 十二星座真是太烦了...
 
 
-![4352f02f385243a692c07c304813a9da.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30033/4352f02f385243a692c07c304813a9da.jpg)
+![4352f02f385243a692c07c304813a9da.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30033/4352f02f385243a692c07c304813a9da.jpg)
 

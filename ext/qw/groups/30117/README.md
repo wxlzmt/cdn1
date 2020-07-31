@@ -2,6 +2,6 @@
 
 一个神秘的信封...  -via@精分君
 
-![5fd037d9d192444ebe6cf3f4b7525d5a.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30117/5fd037d9d192444ebe6cf3f4b7525d5a.jpg)
+![5fd037d9d192444ebe6cf3f4b7525d5a.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30117/5fd037d9d192444ebe6cf3f4b7525d5a.jpg)
 
-![ef2d89fff4e74833bdf604b4e3d80b34.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30117/ef2d89fff4e74833bdf604b4e3d80b34.jpg)
+![ef2d89fff4e74833bdf604b4e3d80b34.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30117/ef2d89fff4e74833bdf604b4e3d80b34.jpg)

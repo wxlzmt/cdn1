@@ -2,4 +2,4 @@
 
 本图，很黄
 
-![cf10189fa96a43d5b8f33fc4534898bf.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/20006/cf10189fa96a43d5b8f33fc4534898bf.jpg)
+![cf10189fa96a43d5b8f33fc4534898bf.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/20006/cf10189fa96a43d5b8f33fc4534898bf.jpg)

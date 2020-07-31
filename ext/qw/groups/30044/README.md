@@ -2,7 +2,7 @@
 
 单身狗的自作多情...
 
-![9737b18bf6364477bfa1c57640e984ef.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30044/9737b18bf6364477bfa1c57640e984ef.jpg)
+![9737b18bf6364477bfa1c57640e984ef.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30044/9737b18bf6364477bfa1c57640e984ef.jpg)
 
-![a01dc5054c1c4857b9a55d6773a6d272.jpg](https://raw.githubusercontent.com/wxlzmt/cdn1/master/ext/qw/groups/30044/a01dc5054c1c4857b9a55d6773a6d272.jpg)
+![a01dc5054c1c4857b9a55d6773a6d272.jpg](https://wxlzmt.github.io/cdn1/ext/qw/groups/30044/a01dc5054c1c4857b9a55d6773a6d272.jpg)
 
